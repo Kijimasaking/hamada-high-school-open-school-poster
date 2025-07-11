@@ -1,0 +1,1 @@
+# hamada-high-school-open-school-poster
